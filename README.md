@@ -1,2 +1,2 @@
-# satan
-say
+# start
+ gay
